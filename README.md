@@ -4,4 +4,4 @@
 💞️ I’m looking to collaborate on cybersecurity research projects, especially those involving web application and network penetration testing.  
 📫 How to reach me: [prasannavarma3518@gmail.com](mailto:prasannavarma3518@gmail.com) | [LinkedIn](https://www.linkedin.com/in/prasanna-varma-kucharlapati-11a47221b/)  
 😄 Pronouns: He/Him  
-⚡ Achievements : I once won a championship in cricket and have a knack for breaking into networks (ethically, of course)!
+⚡ Achievements : I have won a championship in cricket and have a knack for breaking into networks (ethically, of course)!
